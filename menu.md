@@ -24,4 +24,16 @@
 |3.| RUKOLA (sos pomidorowy, ser, szynka, rukola) |                   |25 zł | 27 zł | 29 zł |
 
 
+## Sosy
+1. Ketchup - 5 zł
+2. 1000 wysp - 5 zł
+3. Czosnkowy - 5  zł
+4. Chili - 5 zł
+
+## Napoje
+1. Woda - 4 zł
+2. Cola - 7 zł
+3. Sok (jabłkowy, pomarańczowy, porzeczkowy) - 6 zł
+
+
 
