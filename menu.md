@@ -39,6 +39,8 @@
 3. Czosnkowy - 5  zł
 4. Chili - 5 zł
 
+<img src = "photo-1681567604770-0dc826c870ae.avif" width = 200>
+
 ## Dodatki
 1. Cukinia - 5 zł
 2. Karczochy - 6 zł
