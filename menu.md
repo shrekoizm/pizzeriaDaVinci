@@ -39,6 +39,11 @@
 3. Czosnkowy - 5  zł
 4. Chili - 5 zł
 
+## Dodatki
+1. Cukinia - 5 zł
+2. Karczochy - 6 zł
+3. Krewetki - 11 zł
+
 ## Napoje
 1. Woda - 4 zł
 2. Cola - 7 zł
